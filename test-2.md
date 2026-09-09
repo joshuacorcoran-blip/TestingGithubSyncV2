@@ -15,10 +15,6 @@ fkoewkfpwekfkwe
 
 kofwekpfkew
 
-kfoewkfpoewk
-
-fkewopfkewpofk
-
 ewkfoewpfk
 
 ew
