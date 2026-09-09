@@ -17,8 +17,4 @@ f
 
 w
 
-ejwopfkpwe¥
-
-fjewopfj¥pwe
-
 few
